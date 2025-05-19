@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @charyee
 - 👀 I’m interested in coding cool things, cognitive science, and business
-- 🌱 I’m currently learning more about these topics
+- 🌱 I’m constantly learning more about these topics and open to learn more!
 - 📫 How to reach me: email charyee@umich.edu
